@@ -1,4 +1,5 @@
-## Hi there 👋
+
+![17756404459563181814912969473064](https://github.com/user-attachments/assets/cff73d55-08f3-48fa-b429-45297dd5673c)
 
 <!--
 **cllairo/cllairo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
