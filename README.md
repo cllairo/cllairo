@@ -1,5 +1,6 @@
 
-![17756405575436219551679007406857](https://github.com/user-attachments/assets/470a5498-7df8-4f99-9fea-e03d62f94d4d)
+<img width="300" height="245" alt="17766652325624814440971837650954" src="https://github.com/user-attachments/assets/1b3a5951-8902-434e-b94e-56375d817d2a" />
+
 
 
 <!--
