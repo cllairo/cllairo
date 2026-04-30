@@ -1,5 +1,6 @@
-<img width="453" height="284" alt="17770013453575091752882868938964" src="https://github.com/user-attachments/assets/fad0fb1b-3018-44ef-a300-088325b51ed8" />
-             bmf lol :3
+<div align="center">
+  
+<img src="https://advisory-jade-5omy5mdv1e.edgeone.app/ab72deddeb8eeb5b63479368a393d641.jpg" width="300">
              
 
 
